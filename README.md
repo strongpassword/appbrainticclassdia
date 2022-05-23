@@ -1,2 +1,2 @@
-# appbrainticclassdia
-[classdia.vpd.pdf](https://github.com/strongpassword/appbrainticclassdia/files/8603659/classdia.vpd.pdf)
+Giles Lamprecht
+Info: gilelamp9611@granitesd.org https://mail.google.com/mail/u/0/#inbox
